@@ -1,6 +1,5 @@
-~~~~
 
-originally i made a fake leak bc soda removed my (and rte's) dev and acces for p much no reason
+originally i made a fake leak bc soda removed my (and rte's) dev and acces for p much no reason (after i had contributed stuff for the client)
 but bc sodaware "dev" decided to tell everyone that i dont have the src so i actually leaked :)
 tbh this isnt really a big deal bc its literally wp2... according to soda there will be a huge update soon tho.
 tldr: 19yo who sends thigh pics and weird dms to 13yos also known as sodaware "developer" is being a monkey so i leaked 
